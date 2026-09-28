@@ -1,0 +1,2 @@
+# premium-paludarium-build-001-paludarium-building-land-wat
+Tired of juggling loose notes, multiple apps, and forgotten tasks while trying to balance land and water in your paludarium? This Notion template brings every layer of your build—from soil chemistry to spray schedule—into one focused studio.  The Paludarium Building &amp; Land Water Craft Studio is the only Notion workspace designed to unify the dual e
